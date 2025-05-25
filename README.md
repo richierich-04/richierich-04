@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **richitapatnaik05@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1MynT22z2KetRszzGrO0dae0yQNS5N-dl/view?usp=drive_link](https://drive.google.com/file/d/1MynT22z2KetRszzGrO0dae0yQNS5N-dl/view?usp=drive_link)
+- 📄 Know about my experiences 
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
